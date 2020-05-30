@@ -11,6 +11,8 @@ tags:
   - Djokovic
   - Federer
 ---
+![](/img/nalbandian-madrid-2007-flashback.jpg)
+
 David Naldbandian earned a 0.35 winning percentage (11-20) against the ‘Big Three’ of **Novak Djokovic** (1-4), **Roger Federer** (8-11) and **Rafael Nadal** (2-5) in his career. But over the course of three magical days in 2007, the Argentine beat them consecutively.
 
 Entering that year’s Mutua Madrid Open — which at the time was held in October — Nalbandian had only made one quarter-final all season, and that came more than five months earlier on Barcelona’s clay. The ATP Masters 1000 in Madrid was played on hard through 2008.
